@@ -4,7 +4,7 @@
 
 ## Gnocchi à la romaine
 
-> Temps de cuisson: 20 min
+> Credit: Dad
 
 ```text
 1/2 litre de lait
@@ -15,6 +15,8 @@
 2 cuillères à soupe de chapelure
 50 g de beurre
 ```
+
+> Temps de cuisson: 20 min
 
 Faire bouillir le lait et y faire cuire la semoule en la versant en pluie et en
 remuant a la spatule. saler et poivrer. Quand la semoule & cuit 8 mn et qu elle
@@ -31,6 +33,8 @@ gratinés comme un macaroni.
 
 ### Gâteau au chocolat
 
+> Credit: Mom
+
 ```text
 4 œufs
 100 gr de sucre (75 g)
@@ -44,9 +48,34 @@ gratinés comme un macaroni.
 - Incorporer le chocolat dans les jaunes, puis les blancs en neige délicatement.
 - Mettre la pâte dans un moule Ø 20 à 25 cm environ four 160 °c pendant 25 à 30 min.
 
+## Gâteau de semoule
+
+> Credit: Lulu
+
+```
+Ingrédients (5 demi verres environ):
+1/2 l de lait
+60g de sucre
+50g de semoule
+Vanille (ne pas hésiter à en mettre bien)
+Rhum (1.3 bouchon, facultatif)
+```
+
+- Porter le lait à ébullition avec la vanille et le rhum.
+- Ajouter le sucre.
+- Ajouter la semoule en pluie.
+- Laisser bouillonner 5 minutes en remuant tout le temps.
+- Une fois terminé, mettre immédiatement dans les verrines puis au frais (refroidi rapidement).
+
+Peut se servir sur un lit de coulis framboise, abricot, caramel, sans lit...
+
+> Ce qu'il faut savoir sur cette recette, c'est que tu peux multiplier par 2 la quantité de semoule pour obtenir un gateau bien ferme, que tu peux mettre dans un saladier puis servir renversé après le démoulage. Tu peux couper des parts fastoche. Moi je trouve ça un peu estouffe, donc j'ai mis 50g et je le met en verrine, souvent sans lit dessous, parce que je mets le rhum et bien de la vanille (moi j'ai une espèce de pâte à la vanille, mais tu peux mettre de la vanille liquide, ou des gousses fendues et raclées...). Avec ces proportions, ça peut se démouler aussi, la solidité est proche du flan dans les tartes au flan.
+
 ## Drinks
 
 ### Liqueur des initiés (1L)
+
+> Credit: Mom & dad
 
 ```text
 75cl d'eau
