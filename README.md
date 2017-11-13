@@ -31,7 +31,7 @@ gratinés comme un macaroni.
 
 ## Baking
 
-### Gâteau au chocolat
+### Gâteau au chocolat (sans farine)
 
 > Credit: Mom
 
