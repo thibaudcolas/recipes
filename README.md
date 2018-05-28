@@ -4,7 +4,7 @@
 
 ## Cooking
 
-## Gnocchi à la romaine
+### Gnocchi à la romaine
 
 > Credit: Dad
 
@@ -50,7 +50,7 @@ gratinés comme un macaroni.
 - Incorporer le chocolat dans les jaunes, puis les blancs en neige délicatement.
 - Mettre la pâte dans un moule Ø 20 à 25 cm environ four 160 °c pendant 25 à 30 min.
 
-## Gâteau de semoule
+### Gâteau de semoule
 
 > Credit: Lulu
 
