@@ -31,6 +31,28 @@ Arroser copieusement de beurre fondu et faire gratiner, mais à four très chaud
 Ces sortes de gnocchi (ou nioki) ne soufflant pas doivent seulement être bien
 gratinés comme un macaroni.
 
+### Purée Robuchon
+
+> Credit: [puree-maison.com](http://www.puree-maison.com/puree-de-pomme-de-terre/robuchon)
+
+```
+1kg de pomme de terre de variété ratte de préférence (ou BF 15),
+250g de beurre bien froid,
+25cl de lait entier,
+Gros sel, sel fin.
+```
+
+- Laver les pommes de terre et les faire cuire à couvert dans 2 litres d’eau avec une cuillerée à soupe de gros sel pendant 25/30 minutes (départ eau froide, c’est cuit quand la pointe du couteau entre dans la pomme de terre sans forcer),
+- Pendant que les pommes de terre cuisent, couper le beurre en dés et le garder au réfrigérateur.
+- Égoutter, peler les pommes de terre chaudes et les passer au moulin à légumes avec la grille la plus fine au-dessus d’une casserole.
+- Faire chauffer le lait sans le faire bouillir,
+- Faire dessécher la purée obtenue à feu très doux en la remuant avec une spatule en bois (la vapeur de la purée s’évapore).
+- Incorporer le beurre et remuer énergiquement pour obtenir une purée très lisse. D'abord cuillère, puis fouet.
+- Saler
+- Incorporer le lait chaud petit à petit en remuant à la purée à l’aide d’un fouet jusqu’à ce que la purée coule du fouet.
+- Optionel: passer au tamis
+- Poivrer et servir rapidement.
+
 ## Baking
 
 ### Gâteau au chocolat (sans farine)
