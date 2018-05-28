@@ -73,6 +73,39 @@ Peut se servir sur un lit de coulis framboise, abricot, caramel, sans lit...
 
 > Ce qu'il faut savoir sur cette recette, c'est que tu peux multiplier par 2 la quantité de semoule pour obtenir un gateau bien ferme, que tu peux mettre dans un saladier puis servir renversé après le démoulage. Tu peux couper des parts fastoche. Moi je trouve ça un peu estouffe, donc j'ai mis 50g et je le met en verrine, souvent sans lit dessous, parce que je mets le rhum et bien de la vanille (moi j'ai une espèce de pâte à la vanille, mais tu peux mettre de la vanille liquide, ou des gousses fendues et raclées...). Avec ces proportions, ça peut se démouler aussi, la solidité est proche du flan dans les tartes au flan.
 
+## Desserts
+
+### Easy-peasy ice cream
+
+> Credit: [Helsingin Sanomat](https://www.hs.fi/ruoka/reseptit/art-2000002909531.html), Henri S.
+
+```
+Base, 50/50 ratio:
+
+- sugar condensed milk 
+- whipping cream
+
+Flavor #1:
+
+- 3-4 tablespoon raw cocoa powder
+- raspberries
+- 3 teaspoons chili
+
+Flavor #2:
+
+- 3 teaspoons ginger
+- 4dl berries
+- 4rkl raw cocoa powder
+- 2 handfulls of cocoabeans
+```
+
+- Using the electric mixer, mix the base ingredients in a mix so that the mixture is left in the shape of a whisk.
+- Add fills (melt berries a bit in a microwave if needed).
+- Mix slowly with mixer
+- Place on container and put on a lid.
+- Let it cool down in a freezer for a night.
+- Take out before serving.
+
 ## Drinks
 
 ### Liqueur des initiés (1L)
