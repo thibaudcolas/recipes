@@ -130,7 +130,7 @@ Flavor #2:
 
 ## Drinks
 
-### Liqueur des initiés (1L)
+### Liqueur des initiés
 
 > Credit: Mom & dad
 
@@ -141,4 +141,24 @@ Flavor #2:
 2 cuillères à soupe de miel
 ```
 
+- Pour 1L
 - Potentiellement tout boullir sauf le miel
+
+### Kotikalja
+
+```
+5 liters of water
+30 ml of special kalja malt
+20 ml of sugar
+4g (1 teaspon) of baker’s yeast - dry yeast, kuivahiiva
+```
+
+- Put sugar and malt into fermenting bucket
+- Boil water and pour on top
+- Let it rest under a lid until 37-40ºC
+- Add yeast, shaking a bit, and cover loosely
+- Let the beer ferment in warm room temperature for 12 to 24 hours
+- Sieve the beer
+- Bottle it in containers that support a bit of extra pressure, and are well washed
+- Let it cool in the fridge for 24 more hours
+- Enjoy!
