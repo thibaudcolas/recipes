@@ -146,6 +146,8 @@ Flavor #2:
 
 ### Kotikalja
 
+> Credit: Kaljamallas package [from Tuoppi](https://www.foodie.fi/entry/tuoppi-1-kg-kaljamallas/6421000090008)
+
 ```
 5 liters of water
 30 ml of special kalja malt
