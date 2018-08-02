@@ -95,6 +95,28 @@ Peut se servir sur un lit de coulis framboise, abricot, caramel, sans lit...
 
 > Ce qu'il faut savoir sur cette recette, c'est que tu peux multiplier par 2 la quantité de semoule pour obtenir un gateau bien ferme, que tu peux mettre dans un saladier puis servir renversé après le démoulage. Tu peux couper des parts fastoche. Moi je trouve ça un peu estouffe, donc j'ai mis 50g et je le met en verrine, souvent sans lit dessous, parce que je mets le rhum et bien de la vanille (moi j'ai une espèce de pâte à la vanille, mais tu peux mettre de la vanille liquide, ou des gousses fendues et raclées...). Avec ces proportions, ça peut se démouler aussi, la solidité est proche du flan dans les tartes au flan.
 
+### Easy-peasy mousse au chocolat
+
+```
+- 3 eggs
+- 100g of chocolate of your choice
+- (10cl of room temp milk)
+- (50g of sugar)
+```
+
+- Cut the chocolate into small portions – 1cm² is a good goal.
+- Break the eggs, separating the whites and the yolk.
+- Heat water to make a bain-marie (not too hot). Two saucepans work well for this.
+- Pour a few drops of milk (say 5cl) in saucepan. This will make it easier for the chocolate to melt.
+- Mix the yellows and as much sugar as you wish to put in your mousse (2 tbsp is a good start)
+- Use an electric whisk / mixer to raise the egg whites - start slow, ramp up, until firm
+- Melt the chocolate in the bain marie. Stir a bit now and then. Make sure it's not heating too much and burning.
+- If you wish, add milk to the chocolate.
+- Combine the molten chocolate with the egg yolks. Mix until homogeneous.
+- Combine this preparation with the egg whites. Mix until homogeneous. The two mixtures have very different densities so make sure to stir everything.
+- Pour in the serving dish(es)
+- Put in the fridge to rest until solid (30min at least)
+
 ## Desserts
 
 ### Easy-peasy ice cream
