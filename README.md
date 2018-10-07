@@ -53,6 +53,30 @@ Gros sel, sel fin.
 - Optionel: passer au tamis
 - Poivrer et servir rapidement.
 
+
+### Œuf-tartine
+
+> Credit: Bon Appétit
+
+```
+A slice of bread at least ± 3cm thick, with at least 5x5cm of crumb
+One egg
+Butter
+(1 slice of cheese - Cheddar, Monterey Jack, other sliced cheese)
+```
+
+- Cut a circular hole into the slice of bread, the size of an egg
+- Heat a frying pan as if to do œufs au plat
+- Melt 1tbsp of butter on pan
+- Place bread in the butter to fry
+- Once one side is roasted, place butter (1tsp) in its hole
+- Crack open the egg and pour it in the hole, with white at the bottom, yellow above
+- Wait for the egg white to be fried
+- If using cheese – quickly heat the cheese on the pan then put it atop the bread to close the hole
+- Turn the bread upside-down so the cheese side fries
+- Once cheese is fried, it's ready!
+- Without cheese – just be very fast at turning the bread upside down so the egg does not escape
+
 ## Baking
 
 ### Gâteau au chocolat (sans farine)
