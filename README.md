@@ -141,6 +141,39 @@ Peut se servir sur un lit de coulis framboise, abricot, caramel, sans lit...
 - Pour in the serving dish(es)
 - Put in the fridge to rest until solid (30min at least)
 
+### Cannelés
+
+> Credit: [marmiton.org](https://www.marmiton.org/recettes/recette_canneles-bordelais_11439.aspx)
+
+```
+For 16 normal-size cannelés:
+
+- 50 cl milk
+- 2 whole eggs
+- 2 egg yolks
+- 1/2 vanilla bean
+- 1-2 spoons rhum
+- 100g wheat flour
+- 250g powdered sugar
+- 50g butter
+- 10g butter to butter the moulds
+- (a bit of salt)
+```
+
+- Extract vanilla from the half bean
+- Put milk to boil, adding the vanilla & bean, and molten butter
+- In the meantime, mix flour and sugar in a bowl
+- Then add the eggs & egg yolks, and mix further
+- Pour the boiling milk, and mix even more
+- Let the mixture cool
+- Add the rhum
+- Put to cool further in the fridge, for 1h
+- Preheat oven to 220ºC (silicon moulds, 240ºC for metal moulds)
+- Cook for 20 minutes (silicon, 12 minutes for metal)
+- Then lower tempearature to 180ºC, and cook for 1h
+- Extract from mould while hot
+- Leave to rest ± 30mins
+
 ## Desserts
 
 ### Easy-peasy ice cream
