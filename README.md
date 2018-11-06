@@ -243,3 +243,7 @@ Flavor #2:
 - Bottle it in containers that support a bit of extra pressure, and are well washed
 - Let it cool in the fridge for 24 more hours
 - Enjoy!
+
+Related:
+
+- [http://www.rekolanpanimo.fi/kalja-in-english/](http://www.rekolanpanimo.fi/kalja-in-english/)
