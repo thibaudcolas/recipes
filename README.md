@@ -77,6 +77,29 @@ Butter
 - Once cheese is fried, it's ready!
 - Without cheese – just be very fast at turning the bread upside down so the egg does not escape
 
+### Pasta al limone
+
+> Credit: Bon Appétit
+
+```
+For 4 servings,
+
+1 lemon
+350g spaghetti or other long pasta (udon)
+Salt
+20cl cream (crème fraîche or sour cream)
+85g of butter
+85g finely grated Parmesan
+Freshly ground black pepper
+```
+
+1. Using a vegetable peeler, remove two 5cm-long strips of lemon zest. Thinly slice each strip lengthwise into thin strands; set aside for serving. Finely grate remaining zest into a large pot (like a Dutch oven). Cut lemon in half and squeeze out enough juice to yield 2 Tbsp. into a small bowl; set aside.
+2. Cook pasta in another large pot of boiling heavily salted water, stirring occasionally, until very al dente (pasta will finish cooking in the sauce).
+3. Meanwhile, add cream to pot with lemon zest and cook over medium heat, whisking often, until liquid is just beginning to simmer, about 2 minutes. Reduce heat to medium-low. Whisk in butter 15g at a time until melted and sauce is creamy and emulsified. Remove from heat.
+4. Just before pasta is al dente, scoop out 375ml pasta cooking liquid. Add 175ml pasta cooking liquid to cream sauce and return to medium heat. Using tongs, transfer spaghetti to pot with sauce (it’s okay if a little water comes along with it). Cook, tossing often and adding Parmesan little by little, until cheese is melted and sauce is creamy, about 3 minutes. If sauce looks tight, add 1–2 Tbsp. pasta cooking liquid. (Cream sauces tighten up very quickly as they cool, so it’s better to lean on the saucier side of things.)
+5. Stir in reserved lemon juice; season with more salt, if needed.
+6. Divide pasta among bowls with the tongs, spinning bowls to create pasta nests. Season with pepper, then top with reserved lemon zest strips.
+
 ## Baking
 
 ### Gâteau au chocolat (sans farine)
