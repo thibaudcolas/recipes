@@ -179,7 +179,7 @@ For 16 standard-size cannelés:
 - 100g wheat flour (wholemeal flour works as well)
 - 250g granulated sugar
 - 50g butter (I have a preference for salted butter)
-- 10g butter to butter the moulds
+- 10g butter to butter the moulds - the more you put the easier it is to take out the cannelés
 - (a bit of salt – not really needed if you go salted butter)
 ```
 
@@ -195,7 +195,7 @@ For 16 standard-size cannelés:
 - Preheat oven to 220ºC (for silicon moulds – 240ºC for metal moulds)
 - Cook for 20 minutes (for silicon moulds, 12 minutes for metal)
 - Then lower tempearature to 180ºC, and cook for 1h
-- Extract from mould while hot
+- Remove from the oven, leave to rest for 3-5mins, then extract from moulds while warm
 - Leave to rest ± 30mins
 
 ## Desserts
