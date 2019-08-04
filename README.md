@@ -53,6 +53,29 @@ Gros sel, sel fin.
 - Optionel: passer au tamis
 - Poivrer et servir rapidement.
 
+### Draniki
+
+> Credit: Mikalai
+
+```
+2kg of potatoes
+2 eggs
+1 or 2 big red onions
+Salt
+Oil
+```
+
+- Peel potatoes and put them in water to prevent browing
+- Grate the potatoes and onions as thin as possible (ideally using an electric grater)
+- Remove as much water from the grated potatoes as possible
+- Add eggs and mix to make the potato pancake’s dough
+- Add some salt
+- Start heating a non-stick pan, medium-high heat
+- Oil the pan generously
+- With a big serving spoon or ladle, start forming the pancakes in the pan - about 1cm thick or less
+- Turn the pancakes after a few minutes (once cooked)
+- Take the pancakes out of the pan once cooked on both sides
+- Repeat!
 
 ### Œuf-tartine
 
