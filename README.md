@@ -221,6 +221,40 @@ For 16 standard-size cannelés:
 - Remove from the oven, leave to rest for 3-5mins, then extract from moulds while warm
 - Leave to rest ± 30mins
 
+### Praliné
+
+> Credit: [Praliné fait maison d'après la recette de Philippe Conticini](https://www.meilleurduchef.com/fr/recette/praline-maison.html)
+
+```
+300 g de noisettes entières brutes
+300 g d'amandes entières brutes
+400 g de sucre en poudre
+100 g d'eau
+```
+
+- Pour réaliser cette recette de praliné fait "maison", commencer par préparer tous les ingrédients.
+- Verser l'eau dans une casserole ou un poêlon à sucre en cuivre. À défaut de casserole en cuivre vous pouvez utiliser une casserole en inox. L'avantage du cuivre est que la chaleur est mieux diffusée.
+- Ajouter le sucre en poudre.
+- Porter à ébullition...
+- ...et cuire le sucre jusqu'à 118°C (l'utilisation d'un thermomètre à sonde électronique est recommandée). Lorsque cette température est atteinte...
+- ...ajouter les noisettes entières brutes...
+- ...ainsi que les amandes entières brutes.
+- Bien mélanger. Poursuivre la cuisson à feu modéré, en mélangeant constamment avec une cuillère en bois pour éviter aux fruits secs de brûler.
+- Au début, le sucre va masser (blanchir) et se fixer autour des fruits secs, mais cette réaction est normale.
+- Continuer à remuer pendant une vingtaine de minutes. Petit à petit le sucre va fondre à nouveau...
+- ...et se transformer en caramel. Au terme des 20 minutes de cuisson, vous aurez de beaux fruits secs enrobés d'un bon caramel blond foncé. À savoir que ce temps de cuisson est à titre indicatif, cela peut varier en fonction de la plaque que vous utilisez (gaz, induction...).
+- Étaler les fruits secs sur une feuille de papier sulfurisé.
+- Bien les séparer...
+- ...et laisser refroidir.
+- Placer les fruits secs et le caramel dans la cuve du cutter.
+- Replacer le couvercle sur la cuve...
+- ...et mixer finement la préparation.
+- Au début vous allez commencer par obtenir un mélange poudreux assez lourd...
+- ...et au fur et à mesure que la préparation est mixée, elle va s'affiner et s'assouplir...
+- ...pour enfin obtenir un praliné de plus en plus fin.
+- La finesse de votre praliné est modulable. Plus vous allez mixer la préparation, plus elle sera fine. Ici nous l'avons stoppée volontairement à ce stade, très légèrement granuleux, pour obtenir un praliné dit "à l'ancienne". En prolongeant le mixage vous obtiendrez une préparation extra fine. Compter tout de même 15 à 20 bonnes minutes selon les performances de votre cutter.
+- Transvaser le praliné dans un récipient afin de le stocker à l'abri de l'air et de la lumière. Ce praliné "fait maison" saura parfumer vos crèmes avec délicatesse.
+
 ## Desserts
 
 ### Easy-peasy ice cream
