@@ -123,6 +123,30 @@ Freshly ground black pepper
 5. Stir in reserved lemon juice; season with more salt, if needed.
 6. Divide pasta among bowls with the tongs, spinning bowls to create pasta nests. Season with pepper, then top with reserved lemon zest strips.
 
+### Galettes de blé noir ou sarrasin
+
+> Credit: Mom
+
+```
+Pour 300 g de farine de blé noir (14 galettes environ)
+ou pour 150 g 
+1 œuf ( 2 œufs au-delà de 300 g de farine)
+1 ou 2 pincée(s) de sel selon goût de la 1ère galette
+30 g de beurre environ ou 1 ou 2 cuillères à soupe d’huile
+de l’eau
+```
+
+- Mettre la farine dans un saladier, ajouter l’œuf et un peu d’eau.
+- Mélanger en ajoutant un peu d’eau, le beurre fondu ou l’huile et le sel pour obtenir une pâte onctueuse.
+- Laisser reposer 1 h ou 2. 
+- (On peut aussi faire les galettes sans laisser reposer la pâte si on manque de temps.)
+- Mélanger à nouveau en ajoutant de l’eau pour obtenir une pâte ni trop épaisse ni liquide. 
+- Chauffer la crêpière avec un peu d’huile. Lorsqu’elle est bien chaude, étaler la pâte pour faire une première galette et tester au niveau goût et consistance de la pâte.
+
+Garniture : fromage, salade verte, champignons, jambon, saucisse, tomates cuites, œuf, beurre salé, chocolat…
+
+On peut aussi mettre le fromage râpé dans la poêle puis la pâte à galettes par-dessus.
+
 ## Baking
 
 ### Gâteau au chocolat (sans farine)
