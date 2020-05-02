@@ -255,6 +255,31 @@ For 16 standard-size cannelés:
 - La finesse de votre praliné est modulable. Plus vous allez mixer la préparation, plus elle sera fine. Ici nous l'avons stoppée volontairement à ce stade, très légèrement granuleux, pour obtenir un praliné dit "à l'ancienne". En prolongeant le mixage vous obtiendrez une préparation extra fine. Compter tout de même 15 à 20 bonnes minutes selon les performances de votre cutter.
 - Transvaser le praliné dans un récipient afin de le stocker à l'abri de l'air et de la lumière. Ce praliné "fait maison" saura parfumer vos crèmes avec délicatesse.
 
+### Carrot cake
+
+> Credit: Miwi
+
+```
+2 oeufs
+1 cuillère à café de levure
+1 cuillère à café de muscade et 1 de cannelle
+3 grosses carrottes (qui seront grossièrement hachées)
+185g de beurre fondu
+¾ d’un mug de sucre brun (200g)
+1 mug de farine complète mélangée à ½ paquet de levure (250g)
+½ mug de raisins secs (à faire gonfler)
+```
+
+1. Graisser un moule (type à cake)
+2. Mélanger oeufs, levure, cannelle, muscade, carrottes.
+3. Passer le mélange au mixeur / hachoir pour obtenir un mélange uniforme et crémeux
+4. Ajouter le beurre fondu et le sucre
+5. Ajouter la farine
+6. AJouter les raisins secs
+7. Faire cuire 50 minutes à 180ºC
+
+Nappage: mélanger ½ saint morêt, 175g sucre glace et ½ citron
+
 ## Desserts
 
 ### Easy-peasy ice cream
