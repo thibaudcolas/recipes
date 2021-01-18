@@ -304,6 +304,28 @@ For 16 standard-size cannelés:
 
 Nappage: mélanger ½ saint morêt, 175g sucre glace et ½ citron
 
+### Gaufres lyonnaises
+
+> Credit: Mom
+
+Pour environ 10 gaufres,
+
+```
+250g de farine de blé
+125g de beurre fondu refroidi
+3 jaunes d’œufs
+25cl de lait
+(options: vanille, fleur d’oranger, rhum, un peu de sucre si souhaité mais le sucre fait coller la pâte)
+```
+
+1. Délayer 250g de farine, 125g de beurre fondu et les 3 jaunes.
+2. Mélanger le tout avec 25cl de lait
+3. Il faut attendre que le gaufrier soit très chaud (note: 30min)
+4. Mettre de la pâte sur la plaque sans trop remplir
+5. Abaisser la plaque du haut afin qu’elle touche et saisisse la pâte, puis la laisser descendre sans appuyer. Cela permet à la pâte de gonfler avant de cuire.
+6. Retourner le gaufrier toutes les 2-3 min pendant au moins 10min
+7 Sortir les gaufres. Si elles ne sont pas assez cuites, laisser le gaufrier chauffer plus, et laisser les gaufres cuire plus longtemps.
+
 ## Desserts
 
 ### Easy-peasy ice cream
