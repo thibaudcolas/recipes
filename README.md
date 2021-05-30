@@ -147,6 +147,28 @@ Garniture : fromage, salade verte, champignons, jambon, saucisse, tomates cuite
 
 On peut aussi mettre le fromage râpé dans la poêle puis la pâte à galettes par-dessus.
 
+### Carrots dahl
+
+```
+
+```
+
+- Cuire les lentilles avec du sel
+- Couper les oignions
+- Chauffer une poele à fond avec de l’huile végétale
+- Cuire les oignions dans la poele
+- Mettre les graines de coriandre
+- Ajouter l’ail pré-haché (1tsp)
+- Saler
+- Quand les oignions sont cuits, ajouter les feuilles d’épinard
+- Baisser le feu
+- Ajouter les lentilles
+- Jus de carotte (0.5L)
+- Sel. Curry (+ autres épices)
+- Assaisonner
+
+En même temps, Tofu, 1cm, huile, plusieurs faces cuites
+
 ## Baking
 
 ### Gâteau au chocolat (sans farine)
